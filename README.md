@@ -7,4 +7,4 @@
 Zer0-0s/Zer0-0s is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-![team-fortress-spy](https://github.com/Zer0-0s/Zer0-0s/assets/171853176/c3a308e0-1144-4f3a-8f06-0cf6d41cfe4d)
+![gg-gojo](https://github.com/Zer0-0s/Zer0-0s/assets/171853176/7ebfb3a9-5c03-42b8-8138-f81925deb9ef)
